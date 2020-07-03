@@ -2,9 +2,9 @@
 
 ## 导 航 永 久 域 名[https://chaolang.tv/](https://chaolang.tv/)
 
-## ⭐️ 👉 地址一 ：
+## ⭐️ 👉 最新地址 ：[https://chaolang01.com](https://chaolang01.com)
 
-## ⭐️ 👉 备用导航 ：
+## ⭐️ 👉 备用导航 ：chaolang.pub
 
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
