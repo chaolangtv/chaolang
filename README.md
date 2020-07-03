@@ -1,3 +1,8 @@
+<html lang="en">
+  <head>
+    <meta charset="utf-8">
+    <title>潮浪视频网址发布</title>
+    <body>      
 # 潮浪视频 最新地址发布
 
 ## 导 航 永 久 域 名 ：[https://chaolang.tv/](https://chaolang.tv/)
@@ -18,3 +23,5 @@
 ### 谨记永久发布页哦！[https://chaolang.tv/](https://chaolang.tv/)
 
 ### 谨记备用发布页哦！[https://chaolang.pub/](https://chaolang.pub/)
+</body>
+</html>
