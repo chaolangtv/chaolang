@@ -2,6 +2,7 @@
   <head>
     <meta charset="utf-8">
     <title>潮浪视频网址发布</title>
+  </head>
     <body>      
 # 潮浪视频 最新地址发布
 
