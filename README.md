@@ -4,7 +4,9 @@
 
 ## ⭐️ 👉 最新地址 ：[https://chaolang01.com](https://chaolang01.com)
 
-## ⭐️ 👉 备用导航 ：chaolang.pub
+## ⭐️ 👉 备用地址 ：[https://chaolang02.com](https://chaolang02.com)
+
+## ⭐️ 👉 备用导航 ：[https://chaolang.pub](https://chaolang.pub)
 
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 
@@ -15,3 +17,5 @@
 ### Telegram频道，欢迎关注！[HttpS://t.me/](https://t.me/)
 
 ### 谨记永久发布页哦！[https://chaolang.tv/](https://chaolang.tv/)
+
+### 谨记备用发布页哦！[https://chaolang.pub/](https://chaolang.pub/)
