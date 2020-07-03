@@ -1,6 +1,6 @@
 # 潮浪视频 最新地址发布
 
-## 导 航 永 久 域 名[https://chaolang.tv/](https://chaolang.tv/)
+## 导 航 永 久 域 名 ：[https://chaolang.tv/](https://chaolang.tv/)
 
 ## ⭐️ 👉 最新地址 ：[https://chaolang01.com](https://chaolang01.com)
 
