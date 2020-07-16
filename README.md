@@ -2,7 +2,7 @@
 
 ## 导 航 永 久 域 名 ：[https://chaolang.tv/](https://chaolang.tv/)
 
-## ⭐️ 👉 最新地址 ：[https://xav01.com](https://xav02.com)
+## ⭐️ 👉 最新地址 ：[https://xav01.com](https://xav01.com)
 
 ## ⭐️ 👉 备用地址 ：[https://xav02.com](https://xav02.com)
 
