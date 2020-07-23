@@ -4,7 +4,7 @@
 
 ## ⭐️ 👉 最新地址 ：[https://xav01.com](https://xav01.com)
 
-## ⭐️ 👉 备用地址 ：[https://xav02.com](https://xav03.com)
+## ⭐️ 👉 备用地址 ：[https://xav03.com](https://xav03.com)
 
 
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
