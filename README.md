@@ -2,9 +2,9 @@
 
 ## 导 航 永 久 域 名 ：[https://chaolang.pub/](https://chaolang.pub/)
 
-## ⭐️ 👉 最新地址 ：[https://xav04.com](https://xav04.com)
+## ⭐️ 👉 最新地址 ：[https://xav05.com](https://xav05.com)
 
-## ⭐️ 👉 备用地址 ：[https://xav03.com](https://xav03.com)
+## ⭐️ 👉 备用地址 ：[https://xav04.com](https://xav04.com)
 
 
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
